@@ -1,3 +1,3 @@
 #GithubLearn
 
-WeiQi is the most nb!
+WeiQi is the best female programmer in the world
